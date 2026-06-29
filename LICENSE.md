@@ -1,4 +1,4 @@
-
+adopt me Script top offers the most advanced adopt me Script, with auto-farm and unlimited stamina. Perfect for dominating any match.
 
 
 
